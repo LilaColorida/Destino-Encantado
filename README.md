@@ -1,2 +1,2 @@
 # Destino-Encantado
-Pre registro
+Primer Pre registro para el otome
